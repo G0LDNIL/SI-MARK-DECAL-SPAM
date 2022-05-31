@@ -1,1 +1,0 @@
-# SI-MARK-DECAL-SPAM
